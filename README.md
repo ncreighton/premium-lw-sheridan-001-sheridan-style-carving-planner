@@ -1,0 +1,2 @@
+# premium-lw-sheridan-001-sheridan-style-carving-planner
+Professional traditional-leatherwork-tooling Notion template — without the professional price tag.  Pre-built databases, views, and formula fields — ready to duplicate and use. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Sheridan Style Carving — fully configured and ready to use - Pre-built databa
